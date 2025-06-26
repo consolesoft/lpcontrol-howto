@@ -45,3 +45,5 @@ You're now done setting up the LPControl extension.
   3. You can use the LPControl panel to manage, store, or reuse these cookies (based on your current browser session).
 
 visit https://undergr0und.com to buy it, only for red team and cyber expert use , no illega activities involve.
+
+contact on telegram @gamethe0ry for any issue
